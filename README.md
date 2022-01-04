@@ -31,4 +31,7 @@
 
 
 ## Contact
-Created by [@sheikhmoin1] - feel free to contact me!
+Created by 
+[@sheikhmoin1] 
+[@rashmeenmalhotra/]
+- feel free to contact us !
